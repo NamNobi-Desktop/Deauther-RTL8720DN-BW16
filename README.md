@@ -13,6 +13,15 @@ https://youtu.be/zHqKPRQ3pYo?si=s-yyb0RTVPheCdtm
 **Deauther Code Upload Tutorial:**
 https://youtu.be/Sd7pXUONJQg?si=1A5Zq2d1Kr36Apxs
 
+**Complete Product Link**: **https://s.shopee.vn/1g4fIwAURM**<br/>
+
+**BW16 Module Link**: **https://s.shopee.vn/40Sa5PIomu**<br/>
+
+**Antenna Version**: **https://s.shopee.vn/qVYJPDf8B**<br/>
+
+**Full Set Here If You're Lazy:** **https://collshp.com/rtl8720dn_bw16**  
+
+
 # Disclaimer!
 > [!CAUTION]
 > This repository is provided "as-is," without any warranties, either express or implied, including but not limited to warranties of merchantability, fitness for a particular purpose, or non-infringement. Under no circumstances shall the author or copyright owner be liable for any claims, damages, or other liabilities, whether in an action of contract, tort, or otherwise, arising from, out of, or in connection with the software or the use or other dealings in the software.
