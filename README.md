@@ -15,9 +15,9 @@ https://youtu.be/Sd7pXUONJQg?si=1A5Zq2d1Kr36Apxs
 
 **Complete Product Link**: **https://s.shopee.vn/1g4fIwAURM**<br/>
 
-**BW16 Module Link**: **https://s.shopee.vn/40Sa5PIomu**<br/>
+**BW16 Module Link**: **https://s.shopee.vn/6VEQ3crzwk**<br/>
 
-**Antenna Version**: **https://s.shopee.vn/qVYJPDf8B**<br/>
+**Antenna Version**: **https://s.shopee.vn/6VEQ3crzwk**<br/>
 
 **Full Set Here If You're Lazy:** **https://collshp.com/rtl8720dn_bw16**  
 
